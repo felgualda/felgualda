@@ -41,4 +41,4 @@ Aqui estão algumas das linguagens e tecnologias que utilizo no meu dia a dia:
 
 
 
-*Última atualização em: 6 de Maio de 2024*
+*Última atualização em: 6 de Maio de 2026*
